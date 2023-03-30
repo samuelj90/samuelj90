@@ -1,4 +1,4 @@
-### 👋 Hi, There Iam Samuel, 
+### 👋 Hi, Iam Samuel, 
 
 ### People usually call me as Sam
 
