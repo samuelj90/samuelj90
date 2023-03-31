@@ -1,6 +1,6 @@
 ### 👋 Hi, Iam Samuel, 
 
-### People usually call me as Sam
+### People usually call me as 🅢🅐🅜
 
 :heart_eyes: My passion for technology is what makes me a software developer.
 
